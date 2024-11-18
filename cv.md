@@ -6,7 +6,7 @@
     - Telegram: @tob_tok_kurumi
 
 
-## *2. Self-Introduction*: 
+## *2. Self-Introduction*: I have not worked in the IT sphere yet I am always willing to learn new skills. Also, I am a punctual and motivated individual. I have lived in Japan for around 5 years, doing my Master`s degree and working at Sophia university.
 
 *************
 ## *3. Skills*:
